@@ -5,4 +5,9 @@ How do i add a space?
 I am so confused as to how this layout works
 
 
-I´m Tommy Two-shoes and i come from NEW YORK
+Why am i writing in english?
+
+
+Now that i actually know how this works, my name is Kelvin Aggerholm and i come from Neastved, Denmark where i am currently working on a 
+programming course, which is why i am as of writing (06-09-2019) am writing on a page only me and my teachers will ever read like it´s
+a beauty vlog. 
